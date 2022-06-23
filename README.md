@@ -1,1 +1,1 @@
-this repository if for Iamichaell
+this repository is for Iamichaell

@@ -1,1 +1,1 @@
-this repository is for Iamichaell
+this repo is for Iamichaell
